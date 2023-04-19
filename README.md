@@ -1,0 +1,1 @@
+# tradingpedia.co
